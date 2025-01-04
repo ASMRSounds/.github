@@ -3,6 +3,7 @@
 
 In the fast-paced world we live in, finding moments of calm and focus can feel like a luxury. ASMR (Autonomous Sensory Meridian Response) has emerged as a powerful tool for relaxation, sleep, and productivity. Whether you’re looking to unwind after a long day, enhance your concentration, or simply indulge in sensory bliss, curated ASMR playlists provide the perfect escape. This guide explores some of the best ASMR playlists available, each tailored to meet specific needs—from soothing water sounds to satisfying eating experiences. Dive in and discover your path to serenity and focus.
 
+![Spotify](https://github.com/user-attachments/assets/8799fa8d-eae5-45e4-b02c-9924ed266fbe)
 
 ### Soothing Water Sounds for ASMR Bliss
 
